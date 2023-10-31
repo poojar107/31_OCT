@@ -1,0 +1,2 @@
+# 31_OCT
+learning
